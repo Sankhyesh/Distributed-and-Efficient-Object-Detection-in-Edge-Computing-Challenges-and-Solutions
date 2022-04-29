@@ -6,3 +6,6 @@
   
   # Images Folder Link:
   https://drive.google.com/drive/folders/1zeKARIICnDslnY1hZoZvVrSAoz1C9Yrl?usp=sharing
+  
+  # Presentation Link:
+  https://drive.google.com/drive/folders/1UBNiTGMBXgiZaH2oUuskxSvSwKRlJubl?usp=sharing
