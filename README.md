@@ -11,4 +11,4 @@
   https://drive.google.com/drive/folders/1UBNiTGMBXgiZaH2oUuskxSvSwKRlJubl?usp=sharing
   
   # Canva ppt Link:
-  https://www.canva.com/design/DAE_MLPu3Jw/NZbIwbSgF98XBxEd0URn3g/view?utm_content=DAE_MLPu3Jw&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink
+ https://www.canva.com/design/DAE_MLPu3Jw/JIt7ul5OaSi0-a_QToNODg/view?utm_content=DAE_MLPu3Jw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
